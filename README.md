@@ -1,4 +1,6 @@
 # Buy Pulsive Clicker
+- **$20** For Lifetime license key. 
+
 - Pulsive Clicker is Semi-Private Autoclicker, you have to contact me in discord to buy.
   
 - Pulsive Clicker is not intended for bypassing anticheat.
