@@ -1,5 +1,5 @@
 # Buy Pulsive Clicker
-- **$20** For Lifetime license key. 
+- **$10** For Lifetime license key. 
 
 - Pulsive Clicker is Semi-Private Autoclicker, you have to contact me in discord to buy.
   
